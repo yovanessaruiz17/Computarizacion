@@ -1,0 +1,2 @@
+# Computarizacion
+Exposición 
